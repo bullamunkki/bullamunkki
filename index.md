@@ -10,3 +10,6 @@ Er wird getötet, als Roger einen Stein auf ihn rollt.
 * rosa
  * liebt kekse
 * hasst baden
+
+Schwein Rudolph
+> Von einer grosser Schnauze wird man auch nicht fett
