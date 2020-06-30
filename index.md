@@ -13,3 +13,6 @@ Er wird getötet, als Roger einen Stein auf ihn rollt.
 
 Schwein Rudolph
 > Von einer grosser Schnauze wird man auch nicht fett
+
+
+<img src="https://thumbs.dreamstime.com/z/happy-pig-portrait-19243449.jpg"/>
